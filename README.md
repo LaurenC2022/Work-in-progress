@@ -1,2 +1,3 @@
 # Work-in-progress
-Just a placeholder while I work on a site 
+Please pardon my progress while I make awesome, new improvements. 
+You can find me on twitter: [@Home_At_Heart_](https://twitter.com/Home_At_Heart_)
